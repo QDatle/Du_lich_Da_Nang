@@ -4,7 +4,7 @@
 
 Đà Nẵng, thành phố bên bờ biển miền Trung Việt Nam, là một điểm đến du lịch nổi tiếng với vẻ đẹp thiên nhiên tuyệt vời, văn hóa phong phú và ẩm thực đặc trưng. Với những bãi biển trải dài cát trắng và nước biển trong xanh, Đà Nẵng thu hút hàng triệu du khách từ khắp nơi trên thế giới.
 
-<img src= "https://static.vinwonders.com/2022/03/bai-bien-da-nang-1.jpg" >
+<img src= "https://www.danang43.vn/wp-content/uploads/2015/04/mykhe.png" >
 
 Một trong những điểm đặc biệt của Đà Nẵng là sự kết hợp tuyệt vời giữa thiên nhiên và con người. Với những dãy núi hùng vĩ như Núi Ngũ Hành Sơn hay Núi Bàn Cờ cùng với dòng sông Hàn uốn lượn qua thành phố, Đà Nẵng tạo nên một khung cảnh hài hòa và hấp dẫn.
 
